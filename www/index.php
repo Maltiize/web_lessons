@@ -91,7 +91,7 @@
         <div class="container">
             <div class="row">
                 <div class="col-lg-12">
-                    <h1>Contact for my nudes</h1>
+                    <h1>Contact for omo's nudes</h1>
                 </div>
             </div>
         </div>
